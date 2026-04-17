@@ -1,4 +1,4 @@
-# dealignai/MiniMax-M2.7-JANG_3L-CRACK - Private, Uncensored AI for Real Creators and Devs
+# dealignai/MiniMax-M2.7-JANG_3L-CRACK  - Private, Uncensored AI for Real Creators and Devs
 
 > Tired of AI that babysits you, logs your prompts, or hits you with "I can't do that"?
 > Meet the next-gen chatbot built for freedom, speed, and digital sovereignty.
